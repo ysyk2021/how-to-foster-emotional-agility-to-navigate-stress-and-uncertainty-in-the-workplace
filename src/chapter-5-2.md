@@ -1,5 +1,3 @@
-Questioning Negative Thoughts
-================================================================================
 
 Investigating and challenging negative thoughts is an important skill for fostering emotional agility and navigating stress and uncertainty in the workplace. In this chapter, we'll explore strategies for questioning negative thoughts to promote resilience and improve emotional well-being.
 
@@ -33,5 +31,4 @@ Conclusion
 ----------
 
 In conclusion, questioning negative thoughts is an essential skill for fostering emotional agility and navigating stress and uncertainty in the workplace. Strategies for success include identifying negative thoughts, challenging them using evidence-based reasoning and alternative perspectives, reframing negative thoughts, and practicing mindfulness. By remaining committed to ongoing learning and improvement, individuals can develop the skills needed to promote emotional well-being and achieve their career goals.
-
 

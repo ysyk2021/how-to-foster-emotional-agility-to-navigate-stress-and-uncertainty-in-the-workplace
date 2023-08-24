@@ -1,5 +1,3 @@
-Chapter 7: Building Resilience
-==============================
 
 Building resilience is essential for navigating stress and uncertainty in the workplace. In this chapter, we will discuss strategies for building resilience and developing a growth mindset.
 

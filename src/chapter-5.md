@@ -1,5 +1,3 @@
-Chapter 5: Investigating and Challenging Thoughts
-=================================================
 
 Our thoughts have a powerful influence on our emotions, behavior, and overall well-being. In this chapter, we will discuss the link between thoughts and emotions and strategies for investigating and challenging negative thoughts.
 

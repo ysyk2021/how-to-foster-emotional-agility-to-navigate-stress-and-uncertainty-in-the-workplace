@@ -1,5 +1,3 @@
-Strategies for overcoming these obstacles
-===============================================================================================
 
 Developing emotional agility can be challenging, and there are several obstacles that individuals may face in the process. In this chapter, we will discuss strategies for overcoming these obstacles.
 

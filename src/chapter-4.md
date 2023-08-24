@@ -1,5 +1,3 @@
-Chapter 4: Accepting and Validating Emotions
-============================================
 
 In order to develop emotional agility, it is important to learn how to accept and validate our emotions. In this chapter, we will discuss the importance of accepting emotions and mindfulness practices for validation.
 

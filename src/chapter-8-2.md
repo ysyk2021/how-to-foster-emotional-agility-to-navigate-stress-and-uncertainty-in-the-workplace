@@ -1,5 +1,3 @@
-Building Positive Relationships at Work
-=============================================================================================
 
 Positive relationships with colleagues are critical for success in the workplace. In this chapter, we will discuss strategies for improving communication and building positive relationships at work.
 

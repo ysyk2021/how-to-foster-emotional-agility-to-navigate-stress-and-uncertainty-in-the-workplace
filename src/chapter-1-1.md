@@ -1,5 +1,3 @@
-The importance of emotional agility in the workplace
-=============================================================================
 
 In today's fast-paced and ever-changing work environment, the ability to navigate stress and uncertainty is essential for success. One key factor in achieving this is developing emotional agility. In this chapter, we will discuss the importance of emotional agility in the workplace.
 

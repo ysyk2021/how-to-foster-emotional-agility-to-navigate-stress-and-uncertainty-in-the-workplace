@@ -1,5 +1,3 @@
-Overview of emotions and their impact
-===================================================================================================
 
 Emotions play a fundamental role in our lives, influencing our behavior, thoughts, and relationships. In this chapter, we will provide an overview of emotions and their impact on individuals in the workplace.
 

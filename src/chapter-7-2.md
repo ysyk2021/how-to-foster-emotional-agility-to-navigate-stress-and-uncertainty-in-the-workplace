@@ -1,5 +1,3 @@
-Developing a Growth Mindset
-===========================================================
 
 Building resilience is essential for navigating stress and uncertainty in the workplace. In this chapter, we will discuss the importance of developing a growth mindset in building resilience.
 

@@ -1,5 +1,3 @@
-Chapter 2: Understanding Emotions and Emotional Intelligence
-============================================================
 
 In order to develop emotional agility, it is important to understand emotions and emotional intelligence. In this chapter, we will provide an overview of emotions and their impact and discuss the concept of emotional intelligence.
 

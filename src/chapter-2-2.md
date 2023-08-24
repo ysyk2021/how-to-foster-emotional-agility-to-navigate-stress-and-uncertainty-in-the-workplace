@@ -1,5 +1,3 @@
-The concept of emotional intelligence
-===================================================================================================
 
 Emotional intelligence is the ability to recognize, understand, and manage one's own emotions, as well as the emotions of others. In this chapter, we will discuss the concept of emotional intelligence and its importance in navigating stress and uncertainty in the workplace.
 

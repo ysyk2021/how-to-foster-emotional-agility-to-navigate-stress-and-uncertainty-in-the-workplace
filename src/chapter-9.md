@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Obstacles to Emotional Agility
-====================================================
 
 Developing emotional agility is an ongoing process that can be challenging at times. In this chapter, we will discuss common obstacles to emotional agility and strategies for overcoming them.
 

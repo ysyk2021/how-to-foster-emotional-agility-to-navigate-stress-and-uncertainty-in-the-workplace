@@ -1,5 +1,3 @@
-Chapter 10: Implementation Strategies for Lasting Change
-========================================================
 
 Developing emotional agility is an ongoing process that requires practice and persistence. In this chapter, we will discuss implementation strategies for lasting change.
 

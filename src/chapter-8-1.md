@@ -1,5 +1,3 @@
-Communicating Emotions Effectively with Colleagues and Superiors
-======================================================================================================================
 
 Effective communication is essential for building positive relationships in the workplace. This includes communicating emotions effectively with colleagues and superiors. In this chapter, we will discuss strategies for communicating emotions effectively in the workplace.
 

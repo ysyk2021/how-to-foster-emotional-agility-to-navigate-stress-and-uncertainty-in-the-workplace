@@ -1,5 +1,3 @@
-Techniques for labeling emotions accurately
-=========================================================================================
 
 Labeling emotions accurately is essential for developing emotional agility to navigate stress and uncertainty in the workplace. In this chapter, we will discuss techniques for labeling emotions accurately.
 

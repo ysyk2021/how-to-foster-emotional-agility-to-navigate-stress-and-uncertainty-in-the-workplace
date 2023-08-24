@@ -1,5 +1,3 @@
-Strategies for Building Resilience in the Face of Stress and Uncertainty
-========================================================================================================
 
 Building resilience is essential for navigating stress and uncertainty in the workplace. In this chapter, we will discuss strategies for building resilience.
 

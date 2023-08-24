@@ -1,5 +1,3 @@
-Chapter 3: Recognizing and Labeling Emotions
-============================================
 
 In order to develop emotional agility, it is important to learn how to recognize and label our emotions. In this chapter, we will discuss identifying common emotions experienced at work and techniques for labeling emotions accurately.
 

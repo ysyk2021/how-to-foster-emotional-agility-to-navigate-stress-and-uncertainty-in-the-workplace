@@ -1,5 +1,3 @@
-Common Obstacles to Emotional Agility
-===========================================================================================
 
 Developing emotional agility can be challenging, and there are common obstacles that individuals may encounter along the way. In this chapter, we will discuss some of these obstacles and strategies for overcoming them.
 

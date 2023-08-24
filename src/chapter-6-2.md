@@ -1,5 +1,3 @@
-Developing a Personalized Toolkit of Coping Mechanisms
-===============================================================================================
 
 In order to develop emotional agility, it is important to learn how to choose effective responses to different emotions. In this chapter, we will discuss developing a personalized toolkit of coping mechanisms.
 

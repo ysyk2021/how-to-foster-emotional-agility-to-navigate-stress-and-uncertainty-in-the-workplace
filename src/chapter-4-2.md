@@ -1,5 +1,3 @@
-Mindfulness Practices for Validation
-==================================================================================
 
 Validating emotions is an important aspect of emotional agility, as it allows individuals to acknowledge and accept their emotions without judgment. In this chapter, we will discuss mindfulness practices for validating emotions.
 

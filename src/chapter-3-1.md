@@ -1,5 +1,3 @@
-Identifying common emotions experienced at work
-=============================================================================================
 
 Recognizing and labeling emotions is the first step in developing emotional agility to navigate stress and uncertainty in the workplace. In this chapter, we will identify common emotions experienced at work.
 

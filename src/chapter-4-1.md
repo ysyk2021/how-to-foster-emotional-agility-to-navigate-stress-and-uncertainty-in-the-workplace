@@ -1,5 +1,3 @@
-Importance of accepting emotions
-==============================================================================
 
 Accepting and validating emotions is essential for developing emotional agility to navigate stress and uncertainty in the workplace. In this chapter, we will discuss the importance of accepting emotions.
 

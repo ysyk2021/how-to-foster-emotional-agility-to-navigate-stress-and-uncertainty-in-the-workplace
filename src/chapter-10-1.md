@@ -1,5 +1,3 @@
-Incorporating emotional agility into daily routines
-=============================================================================================================
 
 Incorporating emotional agility into daily routines is essential for making lasting changes to navigate stress and uncertainty in the workplace. In this chapter, we will discuss implementation strategies for incorporating emotional agility into daily routines.
 

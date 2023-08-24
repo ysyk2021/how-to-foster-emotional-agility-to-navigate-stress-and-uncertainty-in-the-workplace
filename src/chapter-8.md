@@ -1,5 +1,3 @@
-Chapter 8: Improving Communication and Relationships
-====================================================
 
 Effective communication and positive relationships with colleagues are critical for success in the workplace. In this chapter, we will discuss strategies for improving communication and building positive relationships in the workplace.
 

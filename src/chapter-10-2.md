@@ -1,5 +1,3 @@
-Tracking Progress and Celebrating Successes
-=====================================================================================================
 
 Developing emotional agility requires ongoing effort and dedication. In this chapter, we will discuss implementation strategies for lasting change, including tracking progress and celebrating successes.
 

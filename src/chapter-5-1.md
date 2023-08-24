@@ -1,5 +1,3 @@
-Understanding the Link Between Thoughts and Emotions
-=======================================================================================================
 
 The way we think about a situation can have a significant impact on the emotions we experience. In this chapter, we will discuss the link between thoughts and emotions and strategies for investigating and challenging thoughts.
 
