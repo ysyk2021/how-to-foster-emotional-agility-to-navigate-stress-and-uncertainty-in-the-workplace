@@ -1,5 +1,4 @@
-Chapter 7: Developing a Personalized Toolkit of Coping Mechanisms
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing a personalized toolkit of coping mechanisms to foster emotional agility and navigate stress and uncertainty in the workplace. Recognizing that different strategies work for different individuals, we will discuss various techniques that can be tailored to suit your unique needs.
 

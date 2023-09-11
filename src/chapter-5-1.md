@@ -1,5 +1,4 @@
-Chapter 6: Understanding the Link between Thoughts and Emotions
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the realm of emotional agility, it is crucial to recognize the profound connection between our thoughts and emotions. Our thoughts have a direct impact on how we feel, and understanding this link is essential for effectively navigating stress and uncertainty in the workplace. In this chapter, we will delve into the relationship between thoughts and emotions and explore techniques to harness this connection for enhanced emotional well-being.
 

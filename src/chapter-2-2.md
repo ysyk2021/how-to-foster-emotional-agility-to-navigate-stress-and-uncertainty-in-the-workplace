@@ -1,5 +1,4 @@
-Chapter 5: The Concept of Emotional Intelligence
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Emotional intelligence (EI) is a crucial skill set that plays a significant role in fostering emotional agility and navigating stress and uncertainty in the workplace. In this chapter, we will explore the concept of emotional intelligence and its components, as well as the benefits of developing EI skills.
 

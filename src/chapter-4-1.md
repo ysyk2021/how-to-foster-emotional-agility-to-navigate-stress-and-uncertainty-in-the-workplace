@@ -1,5 +1,4 @@
-Chapter 6: Importance of Accepting Emotions
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of accepting emotions as a key aspect of fostering emotional agility to navigate stress and uncertainty in the workplace. By acknowledging and embracing our emotions, we can develop resilience, enhance well-being, and foster a healthier work environment.
 

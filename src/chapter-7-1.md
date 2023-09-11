@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Building Resilience in the Face of Stress and Uncertainty
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced and ever-changing work environment, building resilience is crucial for effectively navigating stress and uncertainty. Resilience allows individuals to bounce back from setbacks, adapt to change, and maintain well-being. In this chapter, we will explore strategies for building resilience and cultivating a resilient mindset.
 

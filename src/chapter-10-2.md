@@ -1,5 +1,4 @@
-Chapter 9: Tracking Progress and Celebrating Successes
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the fast-paced and often challenging environment of the workplace, it is crucial to track our progress and celebrate our successes. This chapter will explore the importance of monitoring our achievements, setting goals, and embracing a culture of recognition and celebration. By doing so, we can foster emotional agility, enhance motivation, and overall well-being.
 

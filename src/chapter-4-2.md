@@ -1,5 +1,4 @@
-Chapter 8: Mindfulness Practices for Validation
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of validation and how mindfulness practices can enhance our ability to validate ourselves and others in the workplace. Validation is a powerful tool that fosters emotional agility, promotes positive relationships, and helps navigate stress and uncertainty with compassion and understanding.
 

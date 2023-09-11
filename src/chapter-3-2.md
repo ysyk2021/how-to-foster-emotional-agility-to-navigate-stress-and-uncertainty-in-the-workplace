@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Labeling Emotions Accurately
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Accurately identifying and labeling our emotions is a fundamental aspect of emotional agility. When we can clearly understand and articulate our feelings, we gain valuable insights into our inner experiences and can effectively navigate stress and uncertainty in the workplace. In this chapter, we will explore various techniques for improving our ability to label emotions accurately.
 

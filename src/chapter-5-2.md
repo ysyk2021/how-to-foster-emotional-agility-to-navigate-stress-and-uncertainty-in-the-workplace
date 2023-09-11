@@ -1,5 +1,4 @@
-Chapter 4: Questioning Negative Thoughts
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the face of stress and uncertainty in the workplace, our thoughts can often become plagued by negativity and self-doubt. These negative thoughts can hinder our ability to navigate challenges and impact our emotional well-being. In this chapter, we will explore the concept of questioning negative thoughts and provide strategies to foster emotional agility through cognitive reframing.
 

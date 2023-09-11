@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Overcoming Obstacles to Emotional Agility
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our journey to foster emotional agility and navigate stress and uncertainty in the workplace, there are several effective strategies we can employ to overcome the common obstacles that may hinder our progress. This chapter explores practical approaches for overcoming avoidance and suppression, emotional reactivity, rigid thinking patterns, lack of self-awareness, and fear of vulnerability. By implementing these strategies, we can develop the emotional intelligence necessary for effectively managing our emotions and adapting to changing circumstances.
 

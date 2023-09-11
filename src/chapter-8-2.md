@@ -1,5 +1,4 @@
-Chapter 10: Building Positive Relationships at Work
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Positive relationships are essential for creating a supportive and collaborative work environment. When we cultivate strong connections with our colleagues, we enhance productivity, job satisfaction, and overall well-being. In this chapter, we will explore strategies and practices for building positive relationships at work. These techniques, when implemented consistently, can contribute to a harmonious and thriving workplace culture.
 

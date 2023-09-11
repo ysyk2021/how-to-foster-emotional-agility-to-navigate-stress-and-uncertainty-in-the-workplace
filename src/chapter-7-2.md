@@ -1,5 +1,4 @@
-Chapter 5: Developing a Growth Mindset
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the ever-changing and challenging work environment, developing a growth mindset is essential for fostering emotional agility and effectively navigating stress and uncertainty. A growth mindset allows individuals to embrace challenges, persist in the face of setbacks, and continually learn and grow. In this chapter, we will explore the concept of a growth mindset and provide strategies for cultivating it in the workplace.
 

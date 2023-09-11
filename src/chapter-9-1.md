@@ -1,5 +1,4 @@
-Chapter 9: Common Obstacles to Emotional Agility
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our journey to foster emotional agility and navigate stress and uncertainty in the workplace, we often encounter common obstacles that can hinder our progress. These obstacles can make it challenging to develop the emotional intelligence necessary for effectively managing our emotions and adapting to changing circumstances. This chapter explores some of the most common obstacles to emotional agility and provides strategies for overcoming them.
 

@@ -1,5 +1,4 @@
-Chapter 4: Overview of Emotions and Their Impact
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of emotions in the workplace and how they impact our well-being, productivity, and relationships. Understanding emotions and their significance is a crucial step in fostering emotional agility and navigating stress and uncertainty effectively.
 

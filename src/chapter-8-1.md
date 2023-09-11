@@ -1,5 +1,4 @@
-Chapter 10: Communicating Emotions Effectively with Colleagues and Superiors
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Effective communication of emotions is vital for fostering understanding, building meaningful connections, and promoting a supportive work environment. In this chapter, we will explore strategies and techniques for effectively communicating your emotions with colleagues and superiors in the workplace.*
 

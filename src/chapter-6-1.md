@@ -1,5 +1,4 @@
-Chapter 7: Identifying Effective Coping Strategies for Different Emotions
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of identifying effective coping strategies for different emotions as a means to foster emotional agility in navigating stress and uncertainty in the workplace. By understanding how to cope with specific emotions, individuals can develop resilience and effectively manage their emotional well-being.
 

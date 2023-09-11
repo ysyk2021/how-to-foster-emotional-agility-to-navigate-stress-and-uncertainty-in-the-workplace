@@ -1,5 +1,4 @@
-Chapter 9: Incorporating Emotional Agility into Daily Routines
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Incorporating emotional agility into our daily routines is essential for navigating stress and uncertainty in the workplace. This chapter explores practical strategies and habits that can help us develop emotional agility as part of our everyday lives. By doing so, we can effectively manage our emotions, adapt to changing circumstances, and foster resilience in the face of challenges.
 

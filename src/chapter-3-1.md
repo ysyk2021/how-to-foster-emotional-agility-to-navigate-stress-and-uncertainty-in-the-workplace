@@ -1,5 +1,4 @@
-Chapter 8: Identifying Common Emotions Experienced at Work
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the workplace, we often encounter a wide range of emotions as we navigate stress and uncertainty. Being able to identify and understand these common emotions is key to developing emotional agility and effectively managing our well-being. In this chapter, we will explore some of the most prevalent emotions experienced in the workplace and discuss strategies for dealing with them.
 
